@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **rgaikwad7749@gmail.com**
 
-- ⚡ Fun fact **Fun fact: I can debug code faster than I can find my keys. Looks weird, right? Chao, I don't care. 🤣**
+- ⚡ Fun fact ** I can debug code faster than I can find my keys. Looks weird, right? Chao, I don't care. 🤣**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
